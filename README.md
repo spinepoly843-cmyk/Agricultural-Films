@@ -27,3 +27,9 @@ Spine Poly Tech provides agriculture film solutions designed for practical farmi
 Selecting the right agriculture film can help farmers maintain suitable growing conditions and support efficient farming practices.
 
 For more information about agriculture films and available product options, explore Spine Poly Tech's product range and choose a solution that suits your agricultural requirements.
+
+## About Spine Poly Tech
+
+Spine Poly Tech provides agriculture film solutions for modern farming needs. Its PE-based films are designed to support soil moisture management, weed control, and crop protection across different agricultural applications.
+
+Learn more: Agriculture Films – Spine Poly Tech
